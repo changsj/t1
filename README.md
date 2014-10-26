@@ -4,9 +4,7 @@ T1 is a smartphone, isn't it ?
 And I thought Luo is a smart person.
 
 1. He can speaks English.
-
 2. He knows how to sell things.
-
 3. He is lovely fat.
 
 ## 罗永浩
@@ -26,6 +24,15 @@ And I thought Luo is a smart person.
 
 #### 新东方
 新东方是一个英文学校，大概就是教大家英语，把大家送出国的那种学校。早期的创始人和校长叫做YMH。2001年，罗永浩在北京正式当上北京教育培训机构新东方学校的英语讲师。罗在新东方任教期间，有学生将其讲课内容录音下来并上传至互联网。这就是老罗语录！
+
+老罗语录摘录：
+
+- 这时候你发现了一个无比体贴的第三选项，大喊一声“啊！倪萍！”
+- 如果倪萍考不过GRE，那只有一个可能就是她不背单词。
+- 这个题巨简单无比以至于都不好意思做了。
+
+
+
 
 
 
